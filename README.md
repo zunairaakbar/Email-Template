@@ -1,2 +1,0 @@
-Email Template LinkedIn link
-[https://www.linkedin.com/posts/zunairaakbr_during-my-internship-at-encryptix-i-undertook-activity-7220046527686156290-A_Fy?utm_source=share&utm_medium=member_desktop]
